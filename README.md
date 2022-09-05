@@ -1,0 +1,1 @@
+# magister-paper-ideas
